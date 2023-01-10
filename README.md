@@ -1,2 +1,4 @@
 # Climate-Change-effect
-Climate Change effect
+In 2050 
+we feel like facing major trouble due to deforestation and more factories with contain air pollution but the actual fact was it not only a primary criterion that affects the environment. we are also doing a lot of that like a more number of diesel and petrol engines and more number of refrigerators.and more over a thechnologies are also contains a majore factores like a increased temperature and also an more air pollutions so to over  come with that we need a lot of precautions like a centerlized common environment like AI 
+because it only can't do any partiality like rich and poor and abled and not abled like.that so by using nowadays techniques like a grabbing the all over earth information and by using satelite we can restrict and  precaute all damages to earth so the responsibilities of the take our earth be careful were not only depends upon a business people and ontrobruners  it's all in our hands.so we can overcome with that by usin now a days technologiess..
